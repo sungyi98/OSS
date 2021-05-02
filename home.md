@@ -6,3 +6,7 @@
 ## my name is sungyi yoon 
 ## this is my profile
 
+> ### major: biology/computer science
+> ### student num: 21700480
+> ### subject: Opensource software
+> 😎💖✨😃
